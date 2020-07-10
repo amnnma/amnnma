@@ -1,1 +1,1 @@
-![Mine](https://tenor.com/view/akamegakill-akame-ga-kill-gif-5395469)
+![Mine](https://raw.githubusercontent.com/amnnma/amnnma/master/tenor.gif)
