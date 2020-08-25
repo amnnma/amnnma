@@ -1,1 +1,1 @@
-![Mine](https://raw.githubusercontent.com/amnnma/amnnma/master/tenor.gif)
+![Mine🥰](https://raw.githubusercontent.com/amnnma/amnnma/master/tenor.gif)
