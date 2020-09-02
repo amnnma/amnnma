@@ -1,1 +1,1 @@
-![Mine🥰](https://raw.githubusercontent.com/amnnma/amnnma/master/tenor.gif =250x250)
+![Mine🥰](https://raw.githubusercontent.com/amnnma/amnnma/master/tenor.gif)
